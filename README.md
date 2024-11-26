@@ -2,7 +2,7 @@
 - 👀 I’m interested in ... coding
 - 🌱 I’m currently learning ...Building websites
 - 💞️ I’m looking to collaborate on ... a project big project
-- 📫 How to reach me ... atangajames90@gmail.com
+- 📫 How to reach me ... atangajames908@gmail.com
 - 😄 Pronouns: ...
 - ⚡ Fun fact: ...
 
